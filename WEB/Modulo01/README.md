@@ -1,3 +1,3 @@
-# Curso Técnicas de Negociação
+# Curso Gestão de Tempo
 
-_Curso utilizado o modelo de Aula Online 2021_
+_Curso será passado para o modelo de Aula Online 2022_
